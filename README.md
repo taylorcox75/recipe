@@ -43,6 +43,7 @@
    - Stir tomato paste into the vegetables, cook 5 minutes.
    - Peel roasted tomatoes, add to skillet, crush them. Add crushed red pepper.
    - Optional: Deglaze with red wine. Add sausage back.
+   - Add back in sausage
    - Pour in chicken stock, simmer 10-15 minutes until reduced.
    - While reducing, cook pasta in boiling water until al dente. Drain, save some pasta water.
    - Lower sauce heat, mix in 1/2 cup grated Parmesan. Use pasta water to adjust sauce consistency.
